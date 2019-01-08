@@ -1,8 +1,8 @@
 # recruit
 ### 阿里巴巴淘宝技术部IM消息产品招聘
 
-TEL/微信: 1865806651 
-Email:limin.llm@alibaba-inc.com 
+TEL/微信: kerisle 
+Email:hepin.p@alibaba-inc.com 
 
 #### 公司福利
 股票期权; 绩效奖金; 弹性工作; 年底双薪; 带薪年假; 定期体检; 很多培训; 午餐补贴
